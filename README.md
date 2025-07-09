@@ -20,4 +20,4 @@
 
 影片来源清晰、更新频繁、安全无病毒，支持PC、安卓、iOS端多设备访问。若你正在寻找一个真正稳定、高清、安全又免费的“日本AV无码在线看”平台，不妨收藏本站，天天看新番号、享受极致观影体验！
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/aa85402/50464 ）</span>
